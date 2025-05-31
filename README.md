@@ -10,3 +10,5 @@
 diaz-28/diaz-28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+helo kit man lok your name yerson diaz nvio de yoselim  
+        no la puedo olvidar tmr
